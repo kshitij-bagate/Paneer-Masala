@@ -1,8 +1,8 @@
 Ingredients:
--3~4 tsp Ghee
+-3-4 tsp Ghee
 -1 piece of Cinnamon
 -1 Star anise
--1~2 Bay leaves
+-1-2 Bay leaves
 -2 Green cardamom
 -Finely chopped Onion
 -1 tsp Ginger-Garlic paste
