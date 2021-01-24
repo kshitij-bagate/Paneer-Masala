@@ -1,0 +1,17 @@
+Ingredients:
+-3~4 tsp Ghee
+-1 piece of Cinnamon
+-1 Star anise
+-1~2 Bay leaves
+-2 Green cardamom
+-Finely chopped Onion
+-1 tsp Ginger-Garlic paste
+-1 tsp Kitchen king masala
+-1 tsp Coriander powder
+-1 tsp Red chili powder
+-1 tsp Besan
+-1 cup Tomato puree
+-1 cup Hot water
+-Salt to taste
+-250 gm Pneer chopped into cubes
+-1 tbsp Kasuri methi
