@@ -1,4 +1,6 @@
 Paneer Masala:
+![Paneer-Butter-Masala](https://user-images.githubusercontent.com/75085082/105851655-63301600-6009-11eb-95ee-3728699f76c5.jpg)
+
 Paneer is all time favourite. We are making paneer masala that too in restaurant style. For that restaurant style texture, besan is added which gives nice binding and texture too. Do try this delicious and easy recipe at home.
 
 Ingredients:
